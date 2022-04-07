@@ -11,13 +11,13 @@
 
 - 👯 I’m looking to collaborate on **the project for the fusion of AI Brain into the bot**
 
-- 🤝 I’m looking for help with **developing the artificial brain with the natural intelligence.**
+- 🤝 I’m looking for help with **developing the Artificial Brain with the Natural Intelligence.**
 
 - 👨‍💻 All of my projects are available at [https://mukeshanandg.ml/](https://mukeshanandg.ml/)
 
 - 📝 I regularly write articles on [https://mukeshanandg.ml/](https://mukeshanandg.ml/)
 
-- 💬 Ask me about **stransform the world without the possibilities for impossibility.**
+- 💬 Ask me about **Transforming the world without the possibilities for impossibility.**
 
 - 📫 How to reach me **ai.mukeshanandg.pit@gmail.com**
 
